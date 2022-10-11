@@ -1,4 +1,4 @@
-# Final-Verdict
-Arcaea最終パックのFinal Verdict楽曲のPMまとめ
+# PJsekai
+AMARAの難易度MASTERのAPまとめ
 
 ※個人調査ですので抜けなどあるかもです
